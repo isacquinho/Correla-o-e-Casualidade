@@ -1,4 +1,4 @@
-![Capa](![Uploading image.png…]()
+![](![Uploading image.png…])
 )
 )
 # CASUALIDADE E CORRELAÇÃO: ​QUAL A DIFERENÇA?

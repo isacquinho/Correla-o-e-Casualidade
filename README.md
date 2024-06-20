@@ -1,3 +1,4 @@
+![Capa](Presentation1.pdf)
 # CASUALIDADE E CORRELAÇÃO: ​QUAL A DIFERENÇA?
 
 ## O que é Casualidade?

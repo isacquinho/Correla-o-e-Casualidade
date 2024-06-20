@@ -1,4 +1,5 @@
-![Capa](Presentation1.pdf)
+![Capa](![image](https://github.com/isacquinho/Correla-o-e-Casualidade/assets/168225345/0f025003-1a5d-4a1f-bad1-997dee1d7e3e)
+)
 # CASUALIDADE E CORRELAÇÃO: ​QUAL A DIFERENÇA?
 
 ## O que é Casualidade?

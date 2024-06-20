@@ -1,6 +1,4 @@
-![](![Uploading image.png…])
-)
-)
+![](Presentation1-1.png])
 # CASUALIDADE E CORRELAÇÃO: ​QUAL A DIFERENÇA?
 
 ## O que é Casualidade?
